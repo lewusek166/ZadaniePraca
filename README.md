@@ -1,0 +1,2 @@
+# ZadaniePraca
+dziala wszystko 
